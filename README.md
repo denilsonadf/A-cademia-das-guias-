@@ -93,8 +93,38 @@ John Maxwell chama este fenômeno de “influência 360º”.
 <br>
 Então, vamos ao ponto – Como é possível exercer esta influência em cada um destes níveis? 
 <br>
+<h2> 1 – Influenciando as pessoas que estão em uma posição acima.
+</h2>
+ 
+Neste caso, é preciso ter cautela ao sugerir ou ponderar alguma ação da liderança que está em uma posição acima. Em Provérbios diz que: “a palavra mansa aplaca o furor, mas a dura suscita a ira”. Pv. 15:1 
+<br>
+Baseado nisto, um líder jamais exercerá influência sobre aqueles que estão acima dele se ele usar uma linguagem que eu pareça confronto. 
+Para o líder ter influência com alguém que está em uma posição superior a dele, terá que usar uma linguagem que demonstre respeito à posição e a ideia da pessoa.
+<br>
+Portanto, o segredo para que se influenciem pessoas que estão em uma posição superior é sempre usar um posicionamento de cumplicidade e de equipe, onde a sua intenção não é corrigir, antes, melhorar.
+<br>
 
+<h2>2 – Influenciando pessoas na mesma posição. </h2>
 
+Para o líder conseguir influenciar pessoas que estão na mesma posição hierárquica, a estratégia não muda muito… será necessário que ele mostre humildade. 
+<br>
+Quando o líder mostra humildade no exercício de sua liderança, as pessoas começam a confiar e a abrir seus corações para ouvir o que o líder tem a dizer.
+<br>
+O problema é que, por vezes, o líder, querendo ensinar para os demais líderes uma forma mais eficiente e mais rápida de se alcançar resultados, acaba parecendo que quer mostrar que é superior, que sabe mais e que tem mais experiência. Quando isso acontece, as pessoas fecham o coração e “rejeitam” a sua influência. 
+<br>
+
+<h2> 3 – Influenciando pessoas que estão na posição abaixo. </h2>
+<br>
+O grande segredo aqui é ganhar o coração das pessoas. O líder precisará se importar com cada uma delas através de um relacionamento de amizade, ajudando-as em momentos difíceis, entendendo seu comportamento e respeitando a maneira delas pensarem.
+<br>
+É preciso ganhar o coração das pessoas que estão na posição abaixo para levá-las a experimentar o crescimento em unidade e possam, ao seu lado, vivenciar grandes desafios. 
+<br>
+Agora que você já sabe os segredos, descreva como está a sua influência em cada uma destas posições, dando uma nota para você mesmo que descreva a sua influência nestas posições. 
+<br>
+E, lembre-se, para que um líder possa crescer e avançar, é indispensável que ele saiba se auto avaliar. Por isso, seja bem honesto consigo mesmo e diga como você está se enxergando, isto vai ajudar e muito. 
+<br>
+
+<h1>Questionario</h1>
 
       
 
